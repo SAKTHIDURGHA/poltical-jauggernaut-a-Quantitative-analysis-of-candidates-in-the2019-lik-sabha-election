@@ -1,0 +1,1 @@
+# poltical-jauggernaut-a-Quantitative-analysis-of-candidates-in-the2019-lik-sabha-election
